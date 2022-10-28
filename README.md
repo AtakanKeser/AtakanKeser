@@ -1,1 +1,1 @@
-Hi ! Im CS freshman at the Bilkent University
+Hi ! Im a CS student at the Bilkent University
